@@ -1,2 +1,2 @@
 # Smart-City
-https://docs.google.com/videos/d/18Om0MiE1oKF2Oq9NITB9JOEU5xdfDI1m1WXItkDjV80/edit?usp=drive_link
+https://drive.google.com/file/d/151sXiak7SFc1FddXsAh8DJj7JvEQfj-o/view?usp=drive_link
